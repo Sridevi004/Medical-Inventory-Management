@@ -11,6 +11,6 @@ Team member : K. AKSHAYA
 
 Team member : N. SHOBIKA SHREE
 
-Team member : RAJAVARSHINI C 
+Team member : C. RAJAVARSHINI
 
 Demo Vedio Link: https://drive.google.com/file/d/1k0c5g7XZr1KXUL2bUXbNREpnXbtJ87yK/view
